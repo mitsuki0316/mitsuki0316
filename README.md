@@ -1,6 +1,6 @@
-## oh hello there. :p
+## oh hello there :p
 
-I do nothing here. :p
+I do nothing here :p
 
 -------------
 #### Discord
