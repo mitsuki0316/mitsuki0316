@@ -1,4 +1,10 @@
-oh hello there :p
-i do nothing here.
+## oh hello there. :p
 
-Discord(can change, check my icon :p):Deleted User#9999
+I do nothing here.
+
+-------------
+#### Discord
+Check my icon before Friend request, Discord tag may change :p
+
+Deleted User#9999
+
